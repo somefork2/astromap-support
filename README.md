@@ -1,0 +1,1 @@
+# Astro Atlas — support & privacy
